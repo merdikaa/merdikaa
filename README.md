@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi My name is Galang Merdika 👋
 
 ⚡ I am a Front-End Developer based in Sumedang, Indonesia. 
 
